@@ -1,5 +1,5 @@
 
-https://minube.com.ve/
+[techpreak](https://techpreak.com)
 
 Introduction to Chichiriviche
 Chichiriviche is a small fishing village located in the state of Falcón, Venezuela. Its beaches with clear waters, soft sand, and tranquil atmosphere attract tourists from all around the world. Additionally, the area is known for its delicious cuisine, especially fresh seafood and the famous "arepa de chicharrón" (a type of local dish).
